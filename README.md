@@ -17,4 +17,4 @@ I`m a student now and love working on myself. <br />
 
 -🤝 &nbsp; Ask me about aniything, I`m happy to help  <br />
 
--📫 &nbsp; How to reach me: [@muhammadsolih98](https://web.telegram.org/z/@solikh_98)
+-📫 &nbsp; How to reach me: [@muhammadsolih98](https://web.telegram.org/@solikh_98)
